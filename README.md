@@ -1,0 +1,1 @@
+NOTE: These reports represent only a portion of the work I completed during my internship. Due to company policy, certain parts of the work are confidential and cannot be shared or displayed on any platform.
